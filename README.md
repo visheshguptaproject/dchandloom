@@ -1,0 +1,1 @@
+The vision of Government for handloom sector is to develop a strong, competitive and vibrant handloom sector to provide sustainable employment to the handloom weavers particularly belonging to disadvantaged section of the Indian society and to ensure inclusive growth of the sector.
